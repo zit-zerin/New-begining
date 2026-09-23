@@ -1,9 +1,9 @@
-## Introduction about me for all of the reader or viewer of my creation and help of my friends ( so called brothers )
+## Introduction about me, for all of the reader or viewer of my creation and help of my friends ( so called brothers )
 
 # My moto
 
   * I like to make everything simple to work it with less effort
-  * (As we know now time is running out pretty fast so doing less efficient tasks is waste of time if we manage that time we can do other things to improve our lives)
+  * (As we know now time is running out pretty fast, so doing less efficient tasks is waste of time if we manage that time we can do other things to improve our live's)
 
 
 # About Me 
@@ -12,7 +12,7 @@
   * My highest education qualification up till now is higher secondary (Means +2)
   * Now I am pursuing a B Tech degree in GEC Barton Hill
   * The degree is in ECE (Electronics and communication engineering)
-  * (Why ECE because i love to knew about how things are work and produce maximum efficiency. So i choose ECE to understand what is going under the hood of every device. //As you know there is no need of ECE for my thing so reality is i am just flowing with the current "That's it")
+  * (Why ECE because i love to know about how things are work and produce maximum efficiency. So i choose ECE to understand what is going under the hood of every device. //As you know there is no need of ECE for my thing so reality is i am just flowing with the current "That's it")
   * MY hobbies and other stuff's are private if you come offline and talk to me you get it ( so try to speak with me I am a little bit of "introvert" )
 
 # MY interests and accomplishment
@@ -33,5 +33,6 @@
   * " A wise man once said don't ever share your goals or somethin with anyone, until you accomplished it " (so wait guys you will see my accomplishments rather than plans here so visit here frequently to know what i am accomplished)
 
 
+( don't think I am idiot or attention seeker by any means pls... I am just creating my world so avoid any mistakes in grammer (sorry for making you thinking about each sentence through many time )
 
 ## THANKS FOR READING AND SPENDING YOU'R TIME HERE (LOVE YOU GUYS)
